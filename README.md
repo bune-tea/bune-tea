@@ -1,2 +1,2 @@
-# Hi! I'm bun0721.
+# Hi! I'm bune-tea.
 ## I love THE IDOLM@STER.
